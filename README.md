@@ -1,6 +1,6 @@
 ⭐️SEX福利导航⭐️地址发布页 👉最新地址：http://sexfl.xyz/
 
-永久发布页地址：http：//sexfl.xyz
+永久发布页地址：http://sexfl.xyz/
 
 请牢记永久地址，Ctrl+D收藏本页，方便找到回家的路！
 
